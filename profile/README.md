@@ -34,5 +34,7 @@ _VEX V5 High Stakes 2024-25 Season_
 
 1. **Judges Award x2** _with reason quoted as:_
 > "...this team showed great knowledge and energy with an **innovative version control system**..."
+2. **Sportsmanship Award @ UK Nationals** _with reason quoted as:_
+> "...this team showed great sportsmanship by **sharing their practice fields with other teams**..."
 
 _**Looking to collaborate? Send us an email!**_
